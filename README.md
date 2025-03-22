@@ -1,6 +1,6 @@
-- 👋 Hi, I’m Roula
+- 👋 Hi there! I’m Roula
   
-- 🌱 I’m currently learning how to coding
+- 🌱 I’m currently learning how to eat coding properly more than my meal schedule
 
 
 
